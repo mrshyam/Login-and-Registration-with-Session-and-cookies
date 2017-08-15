@@ -11,5 +11,5 @@
  
 # Contact
 *Email:mrshyam.in@gmail.com
-**Thanx and Regrards**
-**Mr. ShyAm**
+**Thanx for Regrards**
+**Mr S**
